@@ -14,7 +14,7 @@ __Kullandığı botu isteyen olursa dm gelsin yada 25 starda atarım__
 ![image](https://cdn.discordapp.com/attachments/1063078909194801163/1077968854325669948/image.png)
 ![image](https://cdn.discordapp.com/attachments/1063078909194801163/1077969020508180570/image.png)
 ![image](https://cdn.discordapp.com/attachments/1063078909194801163/1077969239585071124/image.png)
-![image](https://cdn.discordapp.com/attachments/1063078909194801163/1077969752099667979/image.png)
+![image](https://cdn.discordapp.com/attachments/1063078909194801163/1077971703663169596/image.png)
 ![image](https://cdn.discordapp.com/attachments/1063078909194801163/1077970139976323143/image.png)
 ![image](https://cdn.discordapp.com/attachments/1063079038618456104/1077633661769351178/image.png)
 
